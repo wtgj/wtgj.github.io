@@ -1,2 +1,2 @@
 # wtgj.github.io
-hello world
+Coming back soon.
